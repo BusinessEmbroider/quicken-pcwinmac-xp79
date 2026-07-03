@@ -1,4 +1,4 @@
-# 
+# Updated Quicken workflow for Mac OS | Instant Quicken workflow for PC Windows. Featuring mobile apps and tax-deductible tracking — optimized for maximum performance on every platform.
 
 
 
